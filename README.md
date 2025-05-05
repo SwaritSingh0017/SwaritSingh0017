@@ -37,7 +37,7 @@ Git • GitHub • Canva
 
 - [LinkedIn](https://www.linkedin.com/in/swarit-singh)  
 - [WhatsApp](https://wa.me/919234208044)  
-- Email: swaritsingh007@gmail.com
+- Email: sayamsingh80@gmail.com
 
 ---
 
